@@ -1,0 +1,2 @@
+# CriancaEducada
+Censurar Palavrão
